@@ -1,1 +1,0 @@
-# richardkim.github.io
